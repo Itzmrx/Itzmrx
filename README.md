@@ -1,6 +1,6 @@
 <h1 align="center">Just one boy who tryna take over the world</h1>
 
-<img align="right" alt="me" width="400" src="https://upload-os-bbs.hoyolab.com/upload/2022/04/14/175222549/e48bce8bb42d7e50e6a35aebfddabf84_3411623978208630514.png?x-oss-process=image%2Fresize%2Cs_1000%2Fquality%2Cq_80%2Fauto-orient%2C0%2Finterlace%2C1%2Fformat%2Cwebp">
+<img align="right" alt="me" width="340" src="https://upload-os-bbs.hoyolab.com/upload/2022/04/14/175222549/e48bce8bb42d7e50e6a35aebfddabf84_3411623978208630514.png?x-oss-process=image%2Fresize%2Cs_1000%2Fquality%2Cq_80%2Fauto-orient%2C0%2Finterlace%2C1%2Fformat%2Cwebp">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=itzmrx&label=Profile%20views&color=0e75b6&style=flat" alt="k1ng" /> </p>
 
 <h3 align="left">Languages and Tools:</h3>
