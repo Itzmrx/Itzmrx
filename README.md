@@ -1,6 +1,6 @@
 <h1 align="center">Just one boy who tryna take over the world</h1>
 
-<img align="right" alt="me" width="400" src="https://images.wallpapersden.com/image/download/sung-jin-woo-8k-solo-leveling_bGhnZmaUmZqaraWkpJRmZ2dprWZnZ2k.jpg">
+<img align="right" alt="me" width="400" src="https://upload-os-bbs.hoyolab.com/upload/2022/04/14/175222549/e48bce8bb42d7e50e6a35aebfddabf84_3411623978208630514.png?x-oss-process=image%2Fresize%2Cs_1000%2Fquality%2Cq_80%2Fauto-orient%2C0%2Finterlace%2C1%2Fformat%2Cwebp">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=itzmrx&label=Profile%20views&color=0e75b6&style=flat" alt="k1ng" /> </p>
 
 <h3 align="left">Languages and Tools:</h3>
@@ -8,10 +8,10 @@
 
 <h3 align="left">Links</h3>
 
-- ♥️Reach me: **[Ҡ 1 N G ♡𓆪](https://t.me/itzk1ng)**
-- ♥️Projects: [Ҡ1NGᎠOⱮ ♡𓆪](https://t.me/k1ngdomz)
+- ♥️Reach me: **[ㅤㅤㅤҠ Λ Ɩ ♡𓆪](https://t.me/itzk1ng)**
+- ♥️Projects: *[Ҡ1NGᎠOⱮ ♡𓆪](https://t.me/k1ngdomz)*
 - ♥️Fun fact: 
-**I did your mom last night XD**
-<p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
-<img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=ishu-hinata&show_icons=true&locale=en&layout=compact" alt="ishu-hinata"/>
+**You are in love with me XD**
+- ♥️Status: 
+Lost in your thoughts
 
