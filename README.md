@@ -7,7 +7,7 @@
 <h3 align="left">Links</h3>
 
 - ♥️Reach me: **[ㅤㅤㅤҠ Λ Ɩ ♡𓆪](https://t.me/itzk1ng)**
-- ♥️Projects: *[Ҡ1NGᎠOⱮ ♡𓆪](https://t.me/k1ngdomz)*
+- ♥️Projects: *[𝕿𝖍𝖊 𝕮𝖆𝖘𝖙𝖑𝖊 ⛫󠁱](https://t.me/itzcastle)*
 - ♥️Fun fact: 
 **You are in love with me XD**
 - ♥️Status: 
